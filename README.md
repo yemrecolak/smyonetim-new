@@ -1,0 +1,2 @@
+# Kapiyi Tiklat
+# somyonetim
